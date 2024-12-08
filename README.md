@@ -1,4 +1,4 @@
-# Muhammad Aqil Fikri Bin Yusof
+# My Resume - Aqil Yusof
 
 👋 Hi there! I'm **Muhammad Aqil Fikri Bin Yusof**, a student passionate about **Information Technology** with a focus on **Business Management**.
 
