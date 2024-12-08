@@ -16,7 +16,7 @@
 
 📫 How to reach me:
 - Email: [aqilcyrusgent@gmail.com]
-- LinkedIn: [Your LinkedIn profile here]
+- LinkedIn: [‎ ]
 
 📄 Check out my projects and repositories below to see what I'm working on!
 
