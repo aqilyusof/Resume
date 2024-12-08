@@ -15,7 +15,7 @@
 💬 Feel free to reach out to discuss tech, business management, or anything in between!
 
 📫 How to reach me:
-- Email: [Your email here]
+- Email: [aqilcyrusgent@gmail.com]
 - LinkedIn: [Your LinkedIn profile here]
 
 📄 Check out my projects and repositories below to see what I'm working on!
